@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Thiagoks99 😁
+## Bem-vindo(a) ao perfil do Thiago Gomes 😁
 
  <div>
   <a href="https://github.com/thiagoks99">
